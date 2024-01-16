@@ -23,7 +23,7 @@ How to contact me
 
 You can contact me 
 
-Whatsapp: https://wa.me/+1(848)850-4322
+Whatsapp: https://wa.me/+18488504322
 
 Gmail: atifkhan.hanif@gmail.com, atifsharif.since1991@gmail.com
 
