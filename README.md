@@ -11,11 +11,18 @@ I am running my own business.
 How to contact me 
 
 You can contact me 
+
 Whatsapp: https://wa.me/+1(848)850-4322
+
 Gmail: atifkhan.hanif@gmail.com, atifsharif.since1991@gmail.com
+
 Email: atif@shabirdigital.com
+
 Facebook: https://web.facebook.com/profile.php?id=100009800562938
+
 Linkedln: https://www.linkedin.com/in/iatifsharif/
+
 Instagram: https://www.instagram.com/atifsharif01/
+
 Twitter: @Since1991Atif
 
